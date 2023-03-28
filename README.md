@@ -1,2 +1,2 @@
 # game
-its a fuckin game
+its the henceforth unnamed idler!
